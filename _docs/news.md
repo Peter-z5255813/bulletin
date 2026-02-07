@@ -34,6 +34,19 @@ Our groups will officially start the week beginning February 8th. Group leaders 
 Our primary goal in organizing these groups is to ensure a healthy balance of participants; we want to make sure every group is intimate enough for deep conversation and that no single group becomes overcrowded. With that in mind, if you didn’t get your first preference, please come and speak with Ben. He’s happy to chat with you to ensure everyone feels settled and supported.
 
 
+### New to the Family? Join "The Bridge"
+
+If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
+
+We know that transitioning to a new church can feel a bit like being the "new kid at school," even if you’ve been a Christian for years. The Bridge is a casual, short-term group designed specifically for you to get to know our Senior Minister, hear the heart and vision of our church, and connect with others who are also new to the pews.
+
+When: Friday evenings at 6:00 PM(the first meeting will be this coming Friday, 13 February, 2026).  
+Where: Meet at the church foyer
+The Plan: We’ll gather briefly, then head out to a local restaurant for dinner together.
+Duration: We’ll have you wrapped up and ready for your weekend by 7:30 PM.
+Before you jump into a permanent small group, come spend a few Friday nights with us. It’s the easiest way to move from "visiting" to "belonging."
+
+
 
 ### Growing in Our Welcoming:
   
